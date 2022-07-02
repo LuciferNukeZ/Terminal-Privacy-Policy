@@ -4,4 +4,4 @@ https://discord.com/guidelines
 
 
 
-PRIVACY POLICY FOR TITANIUM 
+PRIVACY POLICY FOR TERMINAL 
