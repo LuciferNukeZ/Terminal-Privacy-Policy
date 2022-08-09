@@ -4,4 +4,4 @@ https://discord.com/guidelines
 
 
 
-PRIVACY POLICY FOR TERMINAL 
+PRIVACY POLICY FOR ASTROZ
